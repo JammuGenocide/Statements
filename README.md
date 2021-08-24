@@ -1,7 +1,7 @@
 # StatementsOnJammuGenocide
 Statements on Record Relating to the Jammu Genocide
 
-**Matma Gandhi**
+**Mohandas Karamchand Gandhi**
 
 Mahatma Gandhi commented on the situation in Jammu on 25 December 1947 in his speech in New Delhi: 
 
