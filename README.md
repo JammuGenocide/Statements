@@ -27,4 +27,5 @@ In a speech at Panthal on the occasion of the inauguration of a canal in April, 
 `
 
 Reference: The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz
+
            The Ranbir, Jammu, Dated 1st. December 1949.
