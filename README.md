@@ -9,3 +9,7 @@ Mahatma Gandhi commented on the situation in Jammu on 25 December 1947 in his sp
 A large number of Muslims have been killed there and Muslim women have been dishonored."
 
 Reference: The second assassination of Gandhi, Ram Puniyani 
+
+**Ved Bhasin**
+
+“Some of those who led the riots in Udhampur and Bhaderwah later joined the National Conference and some even served as ministers,” says Bhasin, as quoted by Naqvi in his book.
