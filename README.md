@@ -1,5 +1,6 @@
 # StatementsOnJammuGenocide
-Statements on Record Relating to the Jammu Genocide
+
+Statements on record relating to the Jammu Genocide.
 
 **Mohandas Karamchand Gandhi**
 
