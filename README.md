@@ -45,6 +45,20 @@ In a speech at Panthal on the occasion of the inauguration of a canal in April, 
            "I want to tell those people who are anxious to bring back the Maharaja that Hari Singh will never return 
            to the State. He has massacred the Muslims of this place. His wife also was his accomplice in these 
            nefarious actions. There is no room for any murderer in this State".
+           
+These speeches which he delivered on 16th, 17th and 18th of November 1947 were considered so important by the National
+Conference that they were published in a booklet form entitled Khutbat-i-Sher-i-Kashmir
+by the Party. In his speech at the Museum Ground (Jammu) delivered to ‘fifty thousand’ people Abdullah declared :
+           
+           “I want to tell the Hindus oi Jammu who are raising the slogan of
+           ‘Maharaja Bahadur ki Jai' (Long live Maharaja Bahadur) that I have no
+           difference with the slogan ; but I want to ask this much. Do you want to
+           see the Maharaja Bahadur as the king of only the Jammu city or the
+           whole State? You have to decide this, if you want to keep him as the king
+           of only one or two districts you can surely do so and I know that you have
+           arranged thus. You have emptied this area of the Muslims. But my
+           desire is that the Maharaja Bahadur should remain the king of the whole
+           of Jammu and Kashmir and not only of two or three districts.”
 
 `
 Reference: The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz`
