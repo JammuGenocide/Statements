@@ -65,3 +65,10 @@ Reference: The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz`
 
 `The Ranbir, Jammu, Dated 1st. December 1949.`
 
+**Arundhati Roy**
+
+           In Jammu, to the south, the Maharaja’s forces assisted by troops borrowed from other princely states, 
+           massacred Muslims. Historians and news reports of the time estimated that somewhere between 70,000 and 
+           200,000 were murdered in the streets of the city, and in its neighboring districts.
+           
+`Reference: The Silence Is the Loudest Sound`
