@@ -11,7 +11,7 @@ Mahatma Gandhi commented on the situation in Jammu on 25 December 1947 in his sp
 A large number of Muslims have been killed there and Muslim women have been dishonored."
 `
 
-Reference: The second assassination of Gandhi, Ram Puniyani 
+           Reference: The second assassination of Gandhi, Ram Puniyani 
 
 **Ved Bhasin**
 
@@ -26,6 +26,6 @@ In a speech at Panthal on the occasion of the inauguration of a canal in April, 
 "I want to tell those people who are anxious to bring back the Maharaja that Hari Singh will never return to the State. He has massacred the Muslims of this place. His wife also was his accomplice in these nefarious actions. There is no room for any murderer in this State".
 `
 
-Reference: The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz
+           Reference: The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz
 
            The Ranbir, Jammu, Dated 1st. December 1949.
