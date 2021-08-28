@@ -72,3 +72,10 @@ Reference: The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz`
            200,000 were murdered in the streets of the city, and in its neighboring districts.
            
 `Reference: The Silence Is the Loudest Sound`
+
+**Dr Karan Singh**
+
+           “I recall the grim atmosphere,” writes Dr Karan Singh, in his autobiography, Heir Apparent, 
+           “…we were losing control of the outer areas.” When the last prince was watching his empire’s 
+           steady fall, his father Hari Singh’s exit had created an anarchic setup in Kashmir — perhaps
+           paving way for the larger crisis.
