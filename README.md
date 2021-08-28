@@ -79,3 +79,11 @@ Reference: The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz`
            “…we were losing control of the outer areas.” When the last prince was watching his empire’s 
            steady fall, his father Hari Singh’s exit had created an anarchic setup in Kashmir — perhaps
            paving way for the larger crisis.
+**William W Baker**           
+
+           According to William W Baker, Maharaja not
+           only ordered the local people of Poonch to lay down their arms, but his
+           order was for all Muslims of the state to voluntarily turn over all their
+           weapons to his police. When his order was resisted, the Muslims, who were
+           five lakh in number. Among them, two lakh were murdered and the rest
+           fled for their safety to West Pakistan.
