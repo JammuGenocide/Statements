@@ -50,7 +50,7 @@ These speeches which he delivered on 16th, 17th and 18th of November 1947 were c
 Conference that they were published in a booklet form entitled Khutbat-i-Sher-i-Kashmir
 by the Party. In his speech at the Museum Ground (Jammu) delivered to ‘fifty thousand’ people Abdullah declared :
            
-           “I want to tell the Hindus oi Jammu who are raising the slogan of
+           “I want to tell the Hindus of Jammu who are raising the slogan of
            ‘Maharaja Bahadur ki Jai' (Long live Maharaja Bahadur) that I have no
            difference with the slogan ; but I want to ask this much. Do you want to
            see the Maharaja Bahadur as the king of only the Jammu city or the
