@@ -59,6 +59,13 @@ by the Party. In his speech at the Museum Ground (Jammu) delivered to ‘fifty t
            arranged thus. You have emptied this area of the Muslims. But my
            desire is that the Maharaja Bahadur should remain the king of the whole
            of Jammu and Kashmir and not only of two or three districts.”
+           
+           In his autobiography, ‘The Flames of the Chinar‘, Abdullah writes: “Upon reaching Jammu,
+           Maharani Tara Devi and he (Singh) distributed arms among communal Hindus and RSS volunteers.
+           The Muslims of #Jammu were assured of a safe-conduct to Pakistan but were massacred at a place
+           called Saubha. No doubt these killings were organized by the Maharaja, his bigoted wife and
+           (then prime minister of Jammu and Kashmir) Mehr Chand Mahajan.”
+
 
 `
 Reference: The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz`
