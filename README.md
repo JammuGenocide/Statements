@@ -65,6 +65,12 @@ by the Party. In his speech at the Museum Ground (Jammu) delivered to ‘fifty t
            The Muslims of #Jammu were assured of a safe-conduct to Pakistan but were massacred at a place
            called Saubha. No doubt these killings were organized by the Maharaja, his bigoted wife and
            (then prime minister of Jammu and Kashmir) Mehr Chand Mahajan.”
+           
+           On the ground, the killing operations were organized, directed and supervised by Maharani Tara Devi
+           in league with her debauch Guru Sat Dev and the governor of Jammu, Chet Ram Chopra. At the
+           politico-administrative level, Sheikh puts the blame solely on the Dogra ruler Hari Singh and Prime Minster
+           Mahajan. At one point of time, Sheikh had even thought of initiating action against the duo for crimes against
+           humanity (Atish-e-Chinar, page 331)
 
 
 `
